@@ -3,7 +3,7 @@
 Bubble cushioning wrap is one of the most effective and widely used packaging materials for protecting fragile items during shipping, moving, or storage. Its air-filled bubbles provide a lightweight and shock-absorbing layer that helps prevent breakage, scratches, and surface damage. For businesses in Irvine managing fulfillment, manufacturing, or logistics, sourcing bubble wrap at wholesale ensures reliable protection and better cost-efficiency.
 
 ---
-[Explore Our Bubble Cushioning Wrap Options](https://www.bluerosepackaging.com/product-category/custom-products/bubble-wrap/)
+[Explore Our Bubble Cushioning Wrap Options](https://www.bluerosepackaging.com/product-category/bubble-cushioning-wrap/)
 ---
 
 ## Types of Bubble Cushioning Wrap We Offer
